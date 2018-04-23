@@ -9,3 +9,9 @@ ZCZC W02 telah mengerjakan demo Week02
 ZCZC W03 telah mengerjakan demo Week03
 
 ZCZC W04 telah mengerjakan demo Week04
+
+ZCZC W05 telah mengerjakan demo Week05
+
+ZCZC W06 telah mengerjakan demo Week06
+
+ZCZC W07 telah mengerjakan demo Week07
